@@ -1,0 +1,1 @@
+BU MƏNİM İLK PYTHON LAHİYƏMDİR
